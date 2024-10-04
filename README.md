@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hj05hack 2.0
+- 👋 Hi, I’m The greatest on EARTH
 - 👀 I’m interested in Gaiming and Technology
 - 🌱 I’m currently learning Multi-Device Application Depelovment
 - 💞️ I’m looking to collaborate on everythong I can
